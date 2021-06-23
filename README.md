@@ -1,5 +1,3 @@
-mohritaroh2/profile
-
 ### Hi there 👋
 
 **毛利勝久**（もうり・かつひさ）
